@@ -23,3 +23,8 @@ setti upp
 
 Ég ætla að skrifa allar dagbækurnar á íslensku en hafa allt inná github á ensku sem ég submita og svona. 
 
+byrjaði að lesa Lean In þessi fyrsta bók sem þú mæltir með. . virkar spennandi
+
+skráði alltof seint í toggl og en ég ætla vera dugleg að skrá þarna inni bara svo ég sjái líka hvað ég er að gera á daginn og svona haha 
+
+
